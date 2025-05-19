@@ -13,7 +13,7 @@ In this article, you’ll learn about Instapage’s features, free trial, coupon
 ## Instapage Overview
 
 <a href="https://afftrend.com/instapage">
-  <img src="https://drive.google.com/uc?export=view&id=14O_tf7uO2re6vrjzvQIKg5gMPqNOt16F" width="800px" alt="">
+  <img src="https://drive.google.com/uc?export=view&id=1u_evGn-VUS8dpEKPbGo8B1TQwq3JgNMl" width="800px" alt="">
 </a>
 
 Instapage is an easy-to-use landing page builder made for people who want more from their online ads. Instead of sending traffic to a general website, Instapage helps you create focused landing pages that match your ads. This way, you get more leads, more sign-ups, and better results from your campaigns.
