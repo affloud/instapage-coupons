@@ -10,7 +10,7 @@ According to Instapage, businesses can increase conversions by up to 400% when t
 
 In this article, you’ll learn about Instapage’s features, free trial, coupon codes, and how to save money if you decide to sign up.
 
-## Instapage Overview
+## Instapage Highlights
 
 <a href="https://afftrend.com/instapage">
   <img src="https://drive.google.com/uc?export=view&id=1u_evGn-VUS8dpEKPbGo8B1TQwq3JgNMl" width="800px" alt="">
